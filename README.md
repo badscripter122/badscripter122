@@ -1,4 +1,1 @@
-piracy is cool
-
-
-yeah :D
+im on linux 
